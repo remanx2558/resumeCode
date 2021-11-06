@@ -19,3 +19,4 @@
 
 
 Resume1 Code:https://www.overleaf.com/project/6181f7314f0c72210f8a17b4
+NoteGoogle:https://keep.google.com/u/1/#NOTE/1fuj0riN0lrVDe6MrUNUvmaDDyeUPGE54O6_uCAnpmBwAaiYte3ICWToP2g3mZsE
